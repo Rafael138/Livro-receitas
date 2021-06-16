@@ -12,7 +12,7 @@
 - 1 xícara (chá) de champignons cortados ao meio
 - 1 lata de creme de leite
 
-**Modo de preparo**
+**Modo de preparo simples**
 
 - Em uma panela, aqueça o azeite e refogue as tiras de frango;
 - Tempere com o sal e com a páprica e junte os tomates pelados;
