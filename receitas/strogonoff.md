@@ -15,7 +15,9 @@
 **Modo de preparo simples**
 
 - Em uma panela, aqueça o azeite e refogue as tiras de frango;
-- Destampe a panela
+- destampe a panela
+- Feche a panela
+
 - Tempere com o sal e com a páprica e junte os tomates pelados;
 - Refogue e adicione a mostarda, o molho inglês e os champignons;
 - Cozinhe por mais 1-2 minutos e junte o creme de leite (não deixe ferver, apenas aquecer);
